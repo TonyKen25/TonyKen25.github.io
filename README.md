@@ -4,3 +4,4 @@
 - [https://www.quora.com/profile/Tony-Ken-25](https://www.quora.com/profile/Tony-Ken-25)
 - [https://x.com/TonyKen25](https://x.com/TonyKen25)
 - [https://medium.com/@TonyKen25/the-elder-scrolls-vi-potentially-set-in-hammerfell-according-to-leaked-concepts-ed9fe0607752](https://medium.com/@TonyKen25/the-elder-scrolls-vi-potentially-set-in-hammerfell-according-to-leaked-concepts-ed9fe0607752)
+- [https://youtu.be/CHv1EDdV_Kg](https://youtu.be/CHv1EDdV_Kg)
