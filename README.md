@@ -1,0 +1,6 @@
+- [https://www.youtube.com/@TonyKen25](https://www.youtube.com/@TonyKen25)
+- [https://www.reddit.com/user/Pretend_Bandicoot_71/](https://www.reddit.com/user/Pretend_Bandicoot_71/)
+- [https://medium.com/@TonyKen25](https://medium.com/@TonyKen25)
+- [https://www.quora.com/profile/Tony-Ken-25](https://www.quora.com/profile/Tony-Ken-25)
+- [https://x.com/TonyKen25](https://x.com/TonyKen25)
+- [https://medium.com/@TonyKen25/the-elder-scrolls-vi-potentially-set-in-hammerfell-according-to-leaked-concepts-ed9fe0607752](https://medium.com/@TonyKen25/the-elder-scrolls-vi-potentially-set-in-hammerfell-according-to-leaked-concepts-ed9fe0607752)
